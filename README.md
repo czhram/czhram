@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @czhram
+- 👀 I’m interested in crypto and whole web3 world
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on newbie coding
+- 📫 How to reach me IDK
